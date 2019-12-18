@@ -1,0 +1,23 @@
+---
+author: Phạm Côn Sơn
+categories:
+- Văn Hóa - Tôn Giáo
+description: Gia Lễ Xưa Và Nay
+download_links:
+- info: pdf
+  url: https://sachvui.com/download/pdf/2779
+image: https://sachvui.com/cover/2016/gia-lee-xua-vaa-nay-pham-con-son.jpg
+layout: post
+permalink: /gia-le-xua-va-nay.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Gia Lễ Xưa Và Nay ebook
+- Gia Lễ Xưa Và Nay pdf
+thumbnail_url: https://sachvui.com/cover/2016/gia-lee-xua-vaa-nay-pham-con-son.jpg
+title: Gia Lễ Xưa Và Nay
+---
+
+ <div class="item-desc text-justify"> <p>Tác phẩm là một công trình tham cứu, biên soạn rất thích hợp với giai đoạn toàn dân ta đang khai triển một nền văn hoá mới đậm đà bản sắc dân tộc, kết hợp truyền thống với hiện đại.</p><p>Nội dung bao gồm những vấn đề cần biết trong tập quán quần chúng xưa nay, không có tính cách biện luận, nhưng gần như khá đầy đủ những tình tiết để mọi người đọc suy nghĩ, chắt lọc những điều hay, nhớ lại những quan điểm của người xưa để duy trì và áp dụng cho thời nay, đồng thời cũng loại bỏ những hủ tục, mê tín dị đoan, phản khoa học.</p><p>Trong khi xã hội, quốc gia tiến lên trong một đời đổi mới, thịnh vượng, theo xu hướng phát triển chung của nhân loại trên hành tinh này trong thế kỷ và thiên niên kỷ mới, mỗi người Việt Nam chúng ta cũng cần nhận thức lại, nhận định lại căn bản văn hoá dân tộc, đường lối giáo dục của người dân nước ta thời xưa để tự mình vạch ra một phương hướng tốt, tiến bộ và thích nghi ở mọi nhà.</p><p><strong>Mục lục:</strong></p><p><em><strong>Lời giới thiệu của nhà xuất bản</strong></em></p><p><em><strong>Dẫn nhập (nhân dịp in lại lần thứ 4)</strong></em></p><p><em><strong>Lời nói đầu</strong></em></p><p><em><strong>Chương 1: Lễ nghĩa và tương lai của gia đình</strong></em></p><p>Sự cần thiết của Gia Lễ</p><p>Gia Lễ trong hệ luỵ nhân sinh</p><p>Hiểu về Gia Lễ như thế nào?</p><p><em><strong>Hướng về tương lai</strong></em></p><p><em><strong>Chương 2: Lễ nghi hôn nhân</strong></em></p><p>Hôn nân và giá thú</p><p>Lục lễ</p><p>Một số nhận xét về lễ nghi Việt Nam</p><p>Những tục lệ xưa</p><p>Nghi thức lễ gia tiên bên đàng gái trước khi rước dâu</p><p>Lễ bên họ nhà trai</p><p>Tế tơ hồng</p><p>Một số lễ tục đặc biệt</p><p>Lễ phản bái</p><p>Hôn lễ cung đình</p><p>Nhận thức và quan điểm về hôn lễ ngày nay</p><p>Lời gia huấn của gia trưởng</p><p><em><strong>Chương 3: Tang lễ</strong></em></p><p>I. Lâm chung</p><p>Tự sửa soạn ngày chết</p><p>Giờ hấp hối</p><p>Những điều lưu ý trong phút lâm chung</p><p>II. Tiến hành lễ tang</p><p>Lập tang chủ và chủ phụ</p><p>Lập người hộ lễ</p><p>Cáo phó</p><p>Chuẩn bị áo quan</p><p>Lễ nhập mộc</p><p>Lễ nhập quan</p><p>Lễ nhập phục</p><p>Những nghi thức khác</p><p>Phú viếng</p><p>Chọn đất làm huyệt mộ</p><p>III. Các thủ tục lễ nghi an táng</p><p>Chuyển cửu và lễ yết tố</p><p>Cáo thần đạo lộ</p><p>Nghi trượng đám táng</p><p>Nghi trượng đi đường</p><p>Phường tuồng dẫn đường trị huyệt</p><p>Nhà trạm và lễ đề chủ</p><p>Lễ hạ nguyệt</p><p>Tế thành phần</p><p>Lễ phản khốc</p><p>Tế tổ và tế ngu</p><p>Ấp mộ và viếng mộ</p><p>IV. Các lễ trong thời kỳ tang chế</p><p>Làm chay chung thất</p><p>Lễ mát nhà việc cúng cơm</p><p>Lễ giỗ trong tang chế</p><p>Tuần tốt khốc</p><p>Tiểu tường</p><p>Đại tường</p><p>Cải táng</p><p>Tìm hiểu tang lễ vua chúa xưa</p><p>V. Tang chế và tang phục</p><p>Nguyên tắc áp dụng</p><p>Thành phần và mức độ để tang</p><p>Tang ông, bà, cụ, kỵ</p><p>Tang cha mẹ</p><p>Tang chú bác, cậu mợ, cô dì</p><p>Tang những người bằng vai</p><p>Tang họ nhà chồng</p><p>Người đàn bà xuất giá để tang họ nhà mình</p><p>Tang lễ ngày nay</p><p><em><strong>Chương 4: Thờ phụng tổ tiên</strong></em></p><p>Quan niệm về thờ phụng Tổ tiên</p><p>Cách thờ phụng thời xưa</p><p>Lòng hiếu thảo và việc phụng dưỡng</p><p>Cúng gia tiên</p><p>Cúng giỗ và cách thức làm lễ theo xưa</p><p>Cách thức dạy</p><p>Văn tế, văn khấn</p><p>Cẩn trọng khi dang cúng gia tiên</p><p>Gia phả</p><p><em><strong>Chương 5: Chiều hướng gia lễ ngày nay</strong></em></p><p>Gia Lễ ngày nay cần phải như thế nào?</p><p>Cách mạng lòng tin</p><p>Gia Lễ, một nhu cầu cấp thiết của giáo dục gia đình</p><p>Phụ biên</p><p>Giải đáp thắc mắc</p><p>Chữ Hiếu phải được thực hiện như thế nào?</p><p>Không thờ chữ Tàu thì lấy chữ gì để mà thờ?</p><p>Giá trị của lòng tin</p><p>Đọc thêm</p><p>Người tạo ra thần</p><p>1. Một thời chưa có khái niệm thần linh.</p><p>2. Không phải thần đã tạo ra loài người</p><p> </p> </div>
